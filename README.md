@@ -1,2 +1,0 @@
-# Prosperidade
-Fe no justo
